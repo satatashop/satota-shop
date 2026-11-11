@@ -1,0 +1,1 @@
+# satota-shop
